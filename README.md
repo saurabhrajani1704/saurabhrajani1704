@@ -1,4 +1,4 @@
-# Hi, I'm Saurabh Rajani 👋  
+# Hi, I'm Saurabh Rajani 
 🎓 Final Year Chemical Engineering @ DTU | 🔍 Data & Product Enthusiast
 
 # About me
